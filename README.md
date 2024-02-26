@@ -1,2 +1,2 @@
-# DanielLitka 🪑😎🖱⌨🖥🖨
+# DanielLitka 😎🖥
  
